@@ -13,4 +13,9 @@
 - it is planning that brings success  not memory
 - planning involves knowong what is needed and going about it strategically
 - dont use presnt task to solve futute traumas
-- 
+- past ways of wasting time, experience may have contributed also
+- decision to find a better way
+- read and learn in momemts of dark night of the soul you will use the wisdom  #takeways
+
+## Related
+#success/exams #trauma/handling #mindset/scarcity #blaming  #notetaking/philosophy
