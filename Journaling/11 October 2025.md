@@ -1,7 +1,7 @@
 
 # Journaling Saturday 11th October 2025
 
-## Why Did I change my Note taking Strategy
+## Why Did I change my Note taking Strategy ?
 - recongibe that scarcity informed my earlier over note taking
 - past trauma of failure forcong me to over stretch or prove that am capable
 - knowong that i can always rereade the amnin article when needed in their site forces me to just read
@@ -15,7 +15,21 @@
 - dont use presnt task to solve futute traumas
 - past ways of wasting time, experience may have contributed also
 - decision to find a better way
-- read and learn in momemts of dark night of the soul you will use the wisdom  #takeways
+
+
+## What made me follw a note template which earlier on I ignored 
+- yoiu cant follow an instruction which your spirt has not accepted
+- which you have not evolve to
+- seeing and experience (internalise) reasons  not logical why you should
+- if your world view is not in sync
+
+
+## Application
+- read and learn in momemts of dark night of the soul seek the wisdom and strategy giving to you in the light
 
 ## Related
-#success/exams #trauma/handling #mindset/scarcity #blaming  #notetaking/philosophy
+#success/exams 
+#trauma/handling 
+#mindset/scarcity 
+#blaming  
+#notetaking/philosophy
