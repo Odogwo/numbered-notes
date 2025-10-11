@@ -11,13 +11,13 @@
 
 
 ## Application
+- My children
 - 
 
 
 ## Related Concepts
 - #boundaries #respect #
 
-
 ## Further plan on this Article
-- Reread for internalization #tomorrow
+- Reread for internalization #read/tomorrow
 - 
